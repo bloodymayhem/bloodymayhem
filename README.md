@@ -5,5 +5,8 @@
 </p>
 
 
-
+<p align="center"> 
+    PLEASE CHECK IT UP MY ART 😭😭 
+    it's linked in my profile :P
+   <p align="center"/> 
 
