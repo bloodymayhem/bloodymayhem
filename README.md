@@ -21,6 +21,6 @@
     <p align="center">
 <img src=https://files.catbox.moe/ecsgm6.gif?v=52814815> <img src=https://files.catbox.moe/yq493v.gif?v=52814815> <img src=https://files.catbox.moe/y0wfif.gif> <img src=https://files.catbox.moe/q2qpyy.gif>
 <p align="center">
-<img src=https://files.catbox.moe/gn7bw5.gif> <img src=https://files.catbox.moe/5ljfyj.gif> <img src=https://gifcity.carrd.co/assets/images/gallery57/0c326f80.png?v=52814815>
+<img src=https://files.catbox.moe/gn7bw5.gif> <img src=https://files.catbox.moe/5ljfyj.gif> <img src=https://files.catbox.moe/k2s4k0.gif
 
  
