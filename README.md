@@ -9,9 +9,14 @@
  <img src="https://files.catbox.moe/nnr9x6.gif">
   <div align="center">
  <h5 align="center">
- <img src="https://files.catbox.moe/fwmmfu.jpg"> 
-<div align="center">
+ <img src="https://files.catbox.moe/fwmmfu.jpg">  
+     <div align="center">  
+       
+  [help palestine](https://arab.org/click-to-help/palestine/#google_vignette) - [my art](https://rentry.co/monart) - [alt rentry](https://rentry.co/prosecutormiles)
+ </div>
+ <div align="center">
+  <div align="center">
  <h5 align="center">
  <img src="https://files.catbox.moe/pcar5m.png">
- <div align="center">
+    
  
